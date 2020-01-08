@@ -16,7 +16,7 @@ Jingyao 控刘强东强奸案民事诉讼原定于1月7日第二次开庭，得�
 Facebook：@global4jingyao  
 Twitter：@global4Jingyao  
 
-也可发邮件给 global4jingyao@protonmail.com（注：由于照片可能被用于媒体报道，不愿照片被媒体使用的朋友请不要把照片发到此邮箱） http://t.cn/Rqz8r6p  
+也可发邮件给 global4jingyao@protonmail.com（注：由于照片可能被用于媒体报道，不愿照片被媒体使用的朋友请不要把照片发到此邮箱）  
 
 ![p1](p1.jpeg)  
 
