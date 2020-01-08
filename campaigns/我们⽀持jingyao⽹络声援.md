@@ -4,7 +4,7 @@
 Jingyao 控刘强东强奸案民事诉讼原定于1月7日第二次开庭，得知消息后，许多在北美各地留学与工作的朋友决定赶赴明尼苏达州亨内平县法院旁听庭审。  
 
 尽管后来开庭时间推迟到1月28日，我们仍然决定按原计划前来，表达对 Jingyao 的支持。  
-我们的行动获得了当地媒体 StarTribune 报道：http://t.cn/AisoemTx，我们希望让 Jingyao 感受到她并不孤单，希望更多遭受侵犯的人敢于发声，也希望能让那些手握权力而肆无忌惮的人受到惩罚。  
+我们的行动获得了当地媒体 StarTribune 报道：http://t.cn/AisoemTx ，我们希望让 Jingyao 感受到她并不孤单，希望更多遭受侵犯的人敢于发声，也希望能让那些手握权力而肆无忌惮的人受到惩罚。  
 
 如果你也像我们一样支持 Jingyao，非常希望你也能跟我们一起发出声音！  
 
@@ -15,6 +15,9 @@ Jingyao 控刘强东强奸案民事诉讼原定于1月7日第二次开庭，得�
 微博：@我们支持Jingyao  
 Facebook：@global4jingyao  
 Twitter：@global4Jingyao  
+
 也可发邮件给 global4jingyao@protonmail.com（注：由于照片可能被用于媒体报道，不愿照片被媒体使用的朋友请不要把照片发到此邮箱） http://t.cn/Rqz8r6p  
 
 ![p1](p1.jpeg)  
+
+2020年1月7日  
