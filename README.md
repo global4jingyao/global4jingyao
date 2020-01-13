@@ -1,6 +1,6 @@
 # Global4jingyao
-我们是海内外Jingyao的支持者，这是我们发起的Global4jingyao的官方主页，将同步整理jingyao案的时间线、庭审和网络声援信息。 
-![front page](front page.jpeg)
+我们是海内外Jingyao的支持者，这是我们发起的Global4jingyao的官方主页，将同步整理jingyao案的时间线、庭审和网络声援信息。  
+![front page](front page.jpg)  
 
 *社交媒体帐号：*  
 微博：[@我们支持Jingyao](http://weibo.com/u/7369023995)  
