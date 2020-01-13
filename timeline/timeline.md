@@ -1,10 +1,10 @@
 # “jingyao起诉刘强东”事件时间线
-
-    【2020年1月7日，来自全世界各地的志愿者聚集明尼苏达支持Jingyao】
+    【2020年1月28日，新的听证日】
+    【2020年1月7日，尽管听证延期，来自全世界各地的志愿者依然准时到达明尼苏达支持Jingyao】
     
 当地媒体[报道](http://www.startribune.com/chinese-from-around-the-u-s-gather-to-support-u-undergrad-who-alleges-she-was-raped-by-billionaire/566788632/?from=timeline&isappinstalled=0)了此次活动。
 
-    【2019年9月11日，四位女权主义者参加了Jingyao诉刘强东案的第一次听政】
+    【2019年9月11日，四位女权主义者赶赴现场参加了Jingyao诉刘强东案的第一次听证】
     
 梁小门的[情况总结](https://chinadigitaltimes.net/chinese/2019/09/%E6%A2%81%E5%B0%8F%E9%97%A8-jingyao%E8%B5%B7%E8%AF%89%E5%88%98%E5%BC%BA%E4%B8%9C%E6%9C%80%E6%96%B0%E5%BC%80%E5%BA%AD%E6%83%85%E5%86%B5%E5%88%86%E4%BA%AB/)
     
