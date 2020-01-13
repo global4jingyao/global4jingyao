@@ -5,7 +5,7 @@
 
 *社交媒体帐号：*  
 微博：[@我们支持Jingyao](http://weibo.com/u/7369023995)  
-豆瓣：[@支持Jingyao](https://www.douban.com/people/209072821/)  
+豆瓣：[@支持Jingyao](https://www.douban.com/people/209072821/)（存活五天后阵亡）   
 Facebook：[@global4jingyao](https://www.facebook.com/global4jingyao)  
 Twitter：[@global4Jingyao](https://twitter.com/global4Jingyao)  
 Instagram: [@global4jingyao](https://www.instagram.com/global4jingyao/)  
