@@ -15,7 +15,9 @@ Instagram: [@global4jingyao](https://www.instagram.com/global4jingyao/)
 “jingyao起诉刘强东”事件[时间线](https://github.com/global4jingyao/global4jingyao/blob/master/timeline/timeline.md)
 
 ## 媒体报道
+主要媒体报道[整理](https://github.com/global4jingyao/global4jingyao/blob/master/media/media%20coverage.md)
 
+## 网络评论
 
 ## 其他资料
-起诉书
+起诉书中文[翻译](https://matters.news/@hi176/%E5%8A%89%E5%BC%B7%E6%9D%B1%E6%80%A7%E4%BE%B5%E6%A1%88%E8%B5%B7%E8%A8%B4%E6%9B%B8%E4%B8%AD%E6%96%87%E7%89%88-zdpuAoKS67ZK9U5ZmcN6agvhSz5FcdtCh35cC5XN5gNmgFycG)
