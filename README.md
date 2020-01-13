@@ -11,4 +11,11 @@ Instagram: [@global4jingyao](https://www.instagram.com/global4jingyao/)
 ## 网络声援
 支持Jingyao网络声援[活动](https://github.com/global4jingyao/global4jingyao/blob/master/campaigns/%E6%88%91%E4%BB%AC%E2%BD%80%E6%8C%81jingyao%E2%BD%B9%E7%BB%9C%E5%A3%B0%E6%8F%B4.md)
 
-## 时间线
+## 事件时间线
+“jingyao起诉刘强东”事件[时间线](https://github.com/global4jingyao/global4jingyao/blob/master/timeline/timeline.md)
+
+## 媒体报道
+
+
+## 其他资料
+起诉书
