@@ -1,15 +1,19 @@
 # “jingyao起诉刘强东”事件时间线
+## 本主页更新：
     【2020年1月28日，新的听证日】
     【2020年1月7日，尽管听证延期，来自全世界各地的志愿者依然准时到达明尼苏达支持Jingyao】
     
-当地媒体[报道](http://www.startribune.com/chinese-from-around-the-u-s-gather-to-support-u-undergrad-who-alleges-she-was-raped-by-billionaire/566788632/?from=timeline&isappinstalled=0)了此次活动。
+志愿者们协作发起了线上支持Jingyao的活动，并在法院前快闪合影。当地媒体也赶来[报道](http://www.startribune.com/chinese-from-around-the-u-s-gather-to-support-u-undergrad-who-alleges-she-was-raped-by-billionaire/566788632/?from=timeline&isappinstalled=0)了此次活动。
 
     【2019年9月11日，四位女权主义者赶赴现场参加了Jingyao诉刘强东案的第一次听证】
     
-梁小门的[情况总结](https://chinadigitaltimes.net/chinese/2019/09/%E6%A2%81%E5%B0%8F%E9%97%A8-jingyao%E8%B5%B7%E8%AF%89%E5%88%98%E5%BC%BA%E4%B8%9C%E6%9C%80%E6%96%B0%E5%BC%80%E5%BA%AD%E6%83%85%E5%86%B5%E5%88%86%E4%BA%AB/)
+梁小门的[情况总结](https://chinadigitaltimes.net/chinese/2019/09/%E6%A2%81%E5%B0%8F%E9%97%A8-jingyao%E8%B5%B7%E8%AF%89%E5%88%98%E5%BC%BA%E4%B8%9C%E6%9C%80%E6%96%B0%E5%BC%80%E5%BA%AD%E6%83%85%E5%86%B5%E5%88%86%E4%BA%AB/)，明大校报的[报道](https://www.mndaily.com/article/2019/09/n-activists-umn-students-show-support-for-alleged-richard-liu-victim)  
+
+    【2019年7月16日，刘强东于北京互联网法院起诉微博用户@马库斯说 互联网侵权】
+用户马库斯说的[微博](https://www.weibo.com/1768321020/HFi4erucA?from=page_1005051768321020_profile&wvr=6&mod=weibotime&type=comment#_rnd1578890333031), SupChina对此的[报道](https://supchina.com/2019/07/26/richard-liu-sues-feminist-blogger-for-defamation-over-her-rapist-dong-weibo-posts/)  
     
-## 以下转载自Matters: [“jingyao起诉刘强东”事件梳理](https://matters.news/@lijianing011616/jingyao%E8%B5%B7%E8%AF%89%E5%88%98%E5%BC%BA%E4%B8%9C-%E4%BA%8B%E4%BB%B6%E6%A2%B3%E7%90%86-zdpuB2ghsMGY36g2ZtNFRspL7XqE3ofj1Fnd1HkW7Zr6Mutzj)
-原文发布时间：2019年5月3日
+## 以下转载自Matters: [“jingyao起诉刘强东”事件梳理](https://matters.news/@lijianing011616/jingyao%E8%B5%B7%E8%AF%89%E5%88%98%E5%BC%BA%E4%B8%9C-%E4%BA%8B%E4%BB%B6%E6%A2%B3%E7%90%86-zdpuB2ghsMGY36g2ZtNFRspL7XqE3ofj1Fnd1HkW7Zr6Mutzj)  
+原文发布时间：2019年5月3日  
 本版本修正了原文的一些语法
 
 下文梳理了从美国时间4月17日，jingyao向刘强东提出民事诉讼之后，几次重要的舆论战时间点，包括视频/录音的公布、各方的公开声明、媒体报道等。
