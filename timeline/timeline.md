@@ -1,6 +1,8 @@
 # “jingyao起诉刘强东”事件时间线
 ## 本主页更新：
-    【2020年1月28日，新的听证日】
+    【2020年1月28日，新的庭审日】
+来自全美各地的12未支持者到达现场旁听。
+  
     【2020年1月7日，尽管听证延期，来自全世界各地的志愿者依然准时到达明尼苏达支持Jingyao】
     
 志愿者们协作发起了线上支持Jingyao的活动，并在法院前快闪合影。当地媒体也赶来[报道](http://www.startribune.com/chinese-from-around-the-u-s-gather-to-support-u-undergrad-who-alleges-she-was-raped-by-billionaire/566788632/?from=timeline&isappinstalled=0)了此次活动。
